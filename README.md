@@ -28,7 +28,7 @@ Website ini di-hosting secara gratis menggunakan GitHub Pages. Kunjungi:
 
 ## Kontak
 - **WhatsApp**: +62-8xx-xxxx-xxxx (ganti dengan nomor resmi).
-- **Email**: branderly.publisher@email.com
+- **Email**: bbfagensy6@email.com
 - **Instagram**: [@brnderlycreative](https://instagram.com/brnderlycreative) (jika ada).
 
 © 2023 Branderly Creative Publisher. All rights reserved.
